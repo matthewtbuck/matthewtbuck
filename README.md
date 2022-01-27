@@ -1,0 +1,4 @@
+- Hi, I’m @matthewtbuck
+- I’m interested in 3D printing, vinyl cutting, image editing, photography, web design, and anything else technological
+- I'm currently a Digital Culture and Design major at Coastal Carolina University
+- How to reach me - Email: matthewt.buck1@gmail.com
